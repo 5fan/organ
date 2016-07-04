@@ -21,4 +21,4 @@
 
 世界媒体聚焦活摘
 
-<a href="mailto:evidence.providing@gmail.com"><img src="https://cloud.githubusercontent.com/assets/13546896/16549961/0ea0459c-4173-11e6-91fe-c7b241200af5.jpg"></a>
+<a href="mailto:evidence.providing@gmail.com"><img src="https://cloud.githubusercontent.com/assets/13546896/16549989/51116c94-4173-11e6-9fcb-0281f33e599a.jpg"></a>
