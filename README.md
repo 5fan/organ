@@ -21,4 +21,4 @@
 
 世界媒体聚焦活摘
 
-![12](http://www.baiduyunpan.net/k_ff7i57cs.html)
+![12](https://cloud.githubusercontent.com/assets/13546896/16549473/a19200ee-416d-11e6-8d5d-216876296380.jpg)
