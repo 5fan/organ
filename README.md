@@ -1,7 +1,3 @@
-
-朋友：
-感谢您有勇气站出来曝光恶行！我们相信，大部分活摘器官的参与者，是因为受到中共的长期洗脑、及中共犯罪集团的整体胁迫，参与了这场反人类罪行。因此，在这场反人类罪行大白于天下、江泽民集团即将遭到清算的前夕，我们真诚希望您披露所知真相，在这历史的重要关头，站在正义的一边。
-
 <a href="https://github.com/5fan/organ/issues/1" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16889547/44c50298-4ab5-11e6-8bee-2f17daae2fc3.jpg" width="800"></a>
 ##■ 世界聚焦活摘器官罪恶
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16889437/68dc086c-4ab4-11e6-968a-96ed118d3f36.jpg" width="800"></a>
