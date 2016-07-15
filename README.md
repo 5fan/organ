@@ -23,4 +23,4 @@
 
 <a href="mailto:evidence.providing@gmail.com"><img src="https://cloud.githubusercontent.com/assets/13546896/16549989/51116c94-4173-11e6-9fcb-0281f33e599a.jpg"></a>
 
-<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16865257/5918a544-4a31-11e6-969d-efe9af259ee0.jpg" width="700"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16865257/5918a544-4a31-11e6-969d-efe9af259ee0.jpg" width="800"></a>
