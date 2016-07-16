@@ -12,7 +12,7 @@
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892761/5f33652a-4aec-11e6-87ff-94b5b9cbd510.jpg" width="398"></a>
 ##■ 相关资料及证据
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width="800"></a>
-<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width="800"></a>
+<a href="https://github.com/5fan/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width="800"></a>
 ##■ 相关网站
 <a href="http://www.zhuichaguoji.org/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892322/0f21c158-4add-11e6-89f8-18ecd983e289.jpg" width="398"></a>
 <a href="http://www.zhuichaguoji.org/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892323/0f28566c-4add-11e6-977a-66e36ae2e6a3.jpg" width="398"></a>
