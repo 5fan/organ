@@ -16,10 +16,10 @@
 <a href="http://www.zhuichaguoji.org/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892322/0f21c158-4add-11e6-89f8-18ecd983e289.jpg" width="398"></a>
 <a href="http://www.zhuichaguoji.org/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892323/0f28566c-4add-11e6-977a-66e36ae2e6a3.jpg" width="398"></a>
 ##■ 阅读资料（点击直接下载）
-<a href="https://github.com/5fan/organ/files/367125/huozhaiZE-201607-2in1-pdf.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/16892954/d74abebc-4af3-11e6-9aab-ec41ea88d333.jpg" width="197"></a>
-<a href="https://github.com/5fan/organ/files/367124/zifentekan.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/16892955/d74f611a-4af3-11e6-9b8b-ca9f8cc03101.jpg" width="197"></a>
-<a href="https://github.com/5fan/organ/files/367127/zyklmnm-2in1-read.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/16892952/d7326952-4af3-11e6-9b17-978c5fb6246e.jpg" width="197"></a>
-<a href="https://github.com/5fan/organ/files/367126/bxlHM-b-pdf.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/16892953/d74399c0-4af3-11e6-9865-9b7ae5a42419.jpg" width="197"></a>
+<a href="https://github.com/5fan/organ/files/367125/huozhaiZE-201607-2in1-pdf.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/16892998/854612e0-4af5-11e6-8a4f-f684a10dd7aa.jpg" width="197"></a>
+<a href="https://github.com/5fan/organ/files/367124/zifentekan.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/16892999/854b6682-4af5-11e6-8adc-4d29e4b40473.jpg" width="197"></a>
+<a href="https://github.com/5fan/organ/files/367127/zyklmnm-2in1-read.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/16892996/8539d0ac-4af5-11e6-8d7a-ad296a1743fe.jpg" width="197"></a>
+<a href="https://github.com/5fan/organ/files/367126/bxlHM-b-pdf.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/16892997/8540f936-4af5-11e6-9836-0c8ad570695a.jpg" width="197"></a>
 ##■ 了解真相
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16889130/4880fb1a-4ab2-11e6-996b-2c1be5d40cea.jpg" width="398"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16889131/488e0738-4ab2-11e6-8cfe-51a4672b301b.jpg" width="398"></a>
