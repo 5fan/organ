@@ -1,6 +1,5 @@
 <a href="https://github.com/5fan/organ/issues/1" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892095/a8a25070-4ad5-11e6-813a-4b6d82831f8b.jpg" width="800"></a>
 ## ■ 曝料邮箱  [evidence.providing@gmail.com](https://github.com/5fan/organ/issues/1)
-evidence.providing@gmail.com
 ##■ 世界聚焦活摘器官罪恶
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16890866/d2bb57d6-4ac0-11e6-992a-6c55d8ef3005.jpg" width="800"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16890888/fd2f5cd8-4ac0-11e6-9648-1b3f32bcc5c6.jpg" width="800" vspace="15"></a>
