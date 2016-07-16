@@ -13,3 +13,5 @@
 ##■ 了解真相
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16889130/4880fb1a-4ab2-11e6-996b-2c1be5d40cea.jpg" width="398"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16889131/488e0738-4ab2-11e6-8cfe-51a4672b301b.jpg" width="398"></a>
+###■ 相关链接
+<a href="http://www.zhuichaguoji.org/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892230/4664bdbc-4ada-11e6-8fdf-1d5fabf9f1ef.jpg" width="398"></a>
