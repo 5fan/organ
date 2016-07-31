@@ -4,7 +4,7 @@
 <a href="https://github.com/5fan/organ/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892747/06e64aa4-4aec-11e6-9111-dc4632a1cde7.jpg" width="960"></a>
 <a href="https://github.com/5fan/organ/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892749/18caa6e8-4aec-11e6-8b58-d82e38bd6b53.jpg" width="960" vspace="7"></a>
 <a href="https://d20w0cl474g28w.cloudfront.net/organ/Media.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17278990/46e53248-5738-11e6-964a-6bb11d10a7d4.jpg" width="288"></a>
-<a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279236/4cf91d16-573d-11e6-9f61-56a037699c38.jpg" width="288"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279243/85dc6f3e-573d-11e6-9391-9160afd3e1bc.jpg" width="288"></a>
 <a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279019/091120f2-5739-11e6-9eb2-c4a8e1361c50.jpg" width="288"></a>
 ##■ 死刑犯撑不起的蘑菇云
 <a href="https://github.com/5fan/organ/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892758/5f2390dc-4aec-11e6-9950-36b767f1ccb3.jpg" width="960"></a>
