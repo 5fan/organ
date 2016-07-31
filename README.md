@@ -19,3 +19,10 @@
 ##■ 了解真相
 <a href="https://github.com/zx168/168/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="390"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="390"></a>
+
+## 活摘现场目击者的更多证词
+<audio src="https://d20w0cl474g28w.cloudfront.net/organ/1-report-2677.mp3" controls preload></audio>
+2002年4月9日，在沈阳军区总医院15楼的一间手术室内，证人持枪警卫，亲眼看到两个军医（其中一名军官证号码0106069）将一名30多岁的修炼法轮功的中学女教师，在没打麻药的情况下，活生生地摘取了她的心、肝、肾器官。在此之前，女教师遭受了一个月的严刑拷打、侮辱和强暴。
+
+除了活摘器官外， 证人还披露了更多不为人知的罪恶： 例如：锦州公安局迫害致死多名法轮功学员，但称这些学员是自杀、意外； 还将法轮功学员的脑浆吸出来等；除此之外，还有更邪恶的……。中国政法系统从上到下用集团犯罪的方式，将公安干警、医生等捆绑在一起，例如：活摘现场多名警察持枪警戒，看似保护军医，其实也是也相互之间戒备。 活摘罪恶给他的心理造成了长期的、极大的阴影和创伤，所以他最终选择站出来揭露这个罪恶。
+
