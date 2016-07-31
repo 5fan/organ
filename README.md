@@ -9,9 +9,6 @@
 ##■ 死刑犯撑不起的蘑菇云
 <a href="https://github.com/5fan/organ/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892758/5f2390dc-4aec-11e6-9950-36b767f1ccb3.jpg" width="960"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892759/5f28c200-4aec-11e6-8364-f04cb187fa92.jpg" width="960" vspace="8"></a>
-<a href="https://github.com/5fan/organ/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16936951/f013c834-4d38-11e6-80bd-68bc246dfe3a.png" width="398"></a>
-<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16936952/f01925ea-4d38-11e6-8ea4-3a77dc603f0b.png" width="398"></a>
-##■ 相关资料及证据
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width="960"></a>
 <a href="https://github.com/5fan/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width="960"></a>
 ##■ 相关网站
