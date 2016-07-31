@@ -3,8 +3,7 @@
 ##■ 世界聚焦活摘器官罪恶
 <a href="https://github.com/5fan/organ/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892747/06e64aa4-4aec-11e6-9111-dc4632a1cde7.jpg" width="800"></a>
 <a href="https://github.com/5fan/organ/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892749/18caa6e8-4aec-11e6-8b58-d82e38bd6b53.jpg" width="800" vspace="15"></a>
-<a href="https://github.com/5fan/organ/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16936961/1003c6bc-4d39-11e6-818c-4a50dab85cc4.png" width="398"></a>
-<a href="https://github.com/5fan/organ/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16936962/100a0680-4d39-11e6-8dbc-059535c46435.png" width="398"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16936962/100a0680-4d39-11e6-8dbc-059535c46435.png" width="398"></a>
 ##■ 死刑犯撑不起的蘑菇云
 <a href="https://github.com/5fan/organ/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892758/5f2390dc-4aec-11e6-9950-36b767f1ccb3.jpg" width="800"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892759/5f28c200-4aec-11e6-8364-f04cb187fa92.jpg" width="800" vspace="10"></a>
